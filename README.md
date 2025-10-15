@@ -1,0 +1,1 @@
+# Privacy-and-Policy-of-school-attendance-app-
